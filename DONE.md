@@ -1,1 +1,2 @@
 - Joffrey Baratheon : Mort empoisonné lors d’un banquet. Ce n’est pas Arya qui l’a tué.
+- Meryn Trant attaque le maître à danser, mais avant qu'il ne puisse infliger un coup fatal, Arya surgit. En un éclair, elle abat Meryn Trant
